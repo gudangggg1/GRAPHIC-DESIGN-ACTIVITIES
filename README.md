@@ -1,2 +1,2 @@
 # GRAPHIC-DESIGN-ACTIVITIES
-This is are my activities under Corel Draw 2021.
+This are my activities under Corel Draw 2021.
